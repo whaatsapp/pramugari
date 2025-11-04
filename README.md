@@ -1,2 +1,1 @@
-# pramugari
-https://wa.aridjaya.com/pramugari/
+# https://wa.aridjaya.com/pramugari/
